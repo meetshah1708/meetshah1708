@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **meetshah1785@gmail.com**
 
-- ⚡ Fun fact **I am a lifelong learner..**
+- ⚡ Fun fact **I am a lifelong learner..  Also secured 96%ile  in JEE Mains(hopefully someone will feel the pain **
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
